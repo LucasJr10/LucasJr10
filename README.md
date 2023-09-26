@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+sou do Brasil, sou o rei do drible, não venha de garfo
 <!--
 **LucasJr10/LucasJr10** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
